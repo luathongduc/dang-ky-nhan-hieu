@@ -3,6 +3,8 @@
 <p>Độc quyền dùng nhãn hiệu<br />
 khi đăng ký thương hiệu và được cấp văn bẳng bảo hộ thì nhãn hiệu sẽ được sử dụng độc quyền. Các đối tác khác ví như sử dụng nhãn hàng đã được đăng ký mà ko với sự chấp nhận của chủ nhân sẽ là vi phạm quyền sở hữu trí não</p>
 
+<p>Xem thêm tư vấn thành lập công ty tại: <a href="https://luathongduc.com/tu-van-thanh-lap-cong-ty">https://luathongduc.com/tu-van-thanh-lap-cong-ty</a></p>
+
 <p>Giấy chứng thực đăng ký nhãn hiệu sở hữu hiệu lực trong khoảng ngày cấp đến hết mười năm bắt đầu từ ngày nộp đơn, với thể gia hạn đa dạng lần liên tiếp, mỗi lần mười năm. Để gia hạn hiệu lực Giấy chứng thực đăng ký nhãn hàng, chủ văn bằng bảo hộ phải nộp lệ phí gia hạn hiệu lực.</p>
 
 <p>Khi trở nên chủ sở hữu thương hiệu thì chủ sở hữu sẽ với những quyền tài sản sau đây: dùng, cho phép người khác sử dụng đối tượng mang công nghiệp theo quy định tại Điều 124 và Chương X của Luật mang trí tuệ; nghiêm cấm người khác tiêu dùng đối tượng sở hữu công nghiệp theo quy định tại Điều 125 của Luật có trí não ; định đoạt đối tượng với công nghiệp theo quy định tại Chương X của Luật mang trí óc.</p>
